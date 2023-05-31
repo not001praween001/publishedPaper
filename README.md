@@ -1,3 +1,3 @@
 # publishedPaper
 
-https://sites.google.com/site/praweenamontamavut/
+https://dr-praween.net/cv.php
